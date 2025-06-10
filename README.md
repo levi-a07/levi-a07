@@ -40,3 +40,6 @@ Feel free to reach out if you’d like to work together, have interesting ideas,
 - [dev.to/levii07](https://dev.to/levii07)
 
 ---
+### 📫 How to Reach Me
+
+- LinkedIn: [Your LinkedIn](https://www.linkedin.com/in/laxmi-anandache-3901a017a)
